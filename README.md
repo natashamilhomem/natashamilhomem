@@ -1,4 +1,4 @@
-### Hi there 👋
+Sou uma pessoa organizada e orientada a resultados. Gosto de trabalhar em equipe e de construir relações interpessoais positivas ao longo da minha caminhada. Sou curiosa e dedicada. Desejo aprender e dividir conhecimentos.
 
 <!--
 **natashamilhomem/natashamilhomem** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
